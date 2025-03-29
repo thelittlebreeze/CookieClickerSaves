@@ -1,0 +1,2 @@
+# CookieClickerSaves
+Cookie 🍪
